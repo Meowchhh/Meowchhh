@@ -1,6 +1,13 @@
+<img width="1000" height="350" alt="Screenshot 2026-01-24 7 47 42 PM" src="https://github.com/user-attachments/assets/0dd99727-30b2-4bcb-a2da-f99ccbd5afea" />
 
-![b471d495de63e3eb95388383f66a0f31](https://github.com/user-attachments/assets/a6fcf97a-b0e0-49a8-aa6b-65b7a69d35f4)
+yoooo who took that photo of me lmaooo ^^^^^
 
-I LOVE LISTENING TO SONGS OVER N OVER UNTIL I GET SICK OF THEM!!
+⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺
 
-you should visit my strawpage
+I LOVE LISTENING TO SONGS OVER N OVER UNTIL I GET SICK OF THEM!!(please drop a song recommendation on sp:) ) 
+
+you should visit my strawpage and atabook please oh please sign my atabook i yearn for more.
+
+I hide people on my own accord, if i hid you its prolly temp unless youre a nazi or proshitter!!! 
+
+this lowk bad rn but im WORKING on it why is this so hard its crazy
