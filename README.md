@@ -4,7 +4,7 @@ yoooo who took that photo of me lmaooo ^^^^^
 
 ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺
 
-I LOVE LISTENING TO SONGS OVER N OVER UNTIL I GET SICK OF THEM!!(please drop a song recommendation on sp:) ) 
+I LOVE LISTENING TO SONGS OVER N OVER UNTIL I GET SICK OF THEM!!(please drop a song recommendation on sp) 
 
 you should visit my strawpage and atabook please oh please sign my atabook i yearn for more.
 
