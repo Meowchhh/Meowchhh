@@ -8,7 +8,6 @@ I LOVE LISTENING TO SONGS OVER N OVER UNTIL I GET SICK OF THEM!!(please drop a s
 
 you should visit my strawpage and atabook please oh please sign my atabook i yearn for more.
 
-I hide people on my own accord, if i hid you its prolly temp unless youre a nazi, proshitter, all that jazz.
 
 this lowk bad rn but im WORKING on it why is this so hard its crazy
 
