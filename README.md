@@ -11,6 +11,8 @@ this lowk bad rn but im WORKING on it why is this so hard its crazy
 
 if youre my friend and you catch me walking by you, I AM NOT IGNORING YOU, i just do not want to bother you. #awkward 
 
+if you start to seriously try and roleplay with me i WILL start screaming and writhing about
+
 I <3 MY BUDDIES!
 
 <img width="1000" height="450" alt="Screenshot 2026-01-24 8 06 37 PM" src="https://github.com/user-attachments/assets/c5ea63db-ce82-4ac7-ba63-9591ebac152d" />
