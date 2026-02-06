@@ -11,7 +11,7 @@ this lowk bad rn but im WORKING on it why is this so hard its crazy
 
 if youre my friend and you catch me walking by you, I AM NOT IGNORING YOU, i just do not want to bother you. #awkward 
 
-if you start to seriously try and roleplay with me i WILL start screaming and writhing about
+if you start to seriously try and roleplay with me i WILL start screaming and writhing about(pls dont roleplay w me👍)
 
 I <3 MY BUDDIES!
 
