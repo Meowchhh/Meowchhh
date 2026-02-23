@@ -7,7 +7,7 @@ I LOVE LISTENING TO SONGS OVER N OVER UNTIL I GET SICK OF THEM!!(please drop a s
 
 you should visit my strawpage and atabook please oh please sign my atabook i yearn for more.
 
-COPYING MY SKINS GIVES ME PERMISSION TO HIRE AN ESTY WITCH TO CURSE YOU!!!!!!!!!!
+COPYING MY SKINS GIVES ME PERMISSION TO HIRE AN ETSY WITCH TO CURSE YOU!!!!!!!!!!
 
 this lowk bad rn but im WORKING on it why is this so hard its crazy
 
