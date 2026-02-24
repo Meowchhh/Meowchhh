@@ -1,10 +1,8 @@
 
 
+<img width="785" height="436" alt="Screenshot 2026-02-24 5 12 03 PM" src="https://github.com/user-attachments/assets/9178a51c-9ba3-46c9-a439-2dff7b1e644d" />
 
 ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺
-
-
-<img width="785" height="436" alt="Screenshot 2026-02-24 5 12 03 PM" src="https://github.com/user-attachments/assets/9178a51c-9ba3-46c9-a439-2dff7b1e644d" />
 
 I LOVE LISTENING TO SONGS OVER N OVER UNTIL I GET SICK OF THEM!!(please drop a song recommendation on sp) 
 
