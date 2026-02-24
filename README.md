@@ -1,4 +1,4 @@
-<img width="1000" height="360" alt="Screenshot 2026-01-24 7 47 42 PM" src="https://github.com/user-attachments/assets/0dd99727-30b2-4bcb-a2da-f99ccbd5afea" />
+
 
 
 ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺
