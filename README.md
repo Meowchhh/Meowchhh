@@ -1,6 +1,5 @@
 
-
-<img width="785" height="436" alt="Screenshot 2026-02-24 5 12 03 PM" src="https://github.com/user-attachments/assets/9178a51c-9ba3-46c9-a439-2dff7b1e644d" />
+<img width="797" height="452" alt="Screenshot 2026-02-24 5 17 11 PM" src="https://github.com/user-attachments/assets/f712084a-97ee-41d5-9547-9cee052bb30e" />
 
 ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺
 
